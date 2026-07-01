@@ -1,3 +1,5 @@
 pulupulupulupulupulupulupulupulupulupulupulupulupulupulupulupulupulupulupulupulupulupulupulupulu
 pulupulupulupulupulupulupulupulupulupulupulupulupulupulupulupulupulupulupulupulupulupulupulupulu
-get out asshole
+get out here asshole
+i will help your mommy teaching you
+let my shoes kiss your ass
